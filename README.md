@@ -1,0 +1,1 @@
+# Windows-XP-style-setup
